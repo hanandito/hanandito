@@ -1,3 +1,3 @@
 🫒
 
-markdown doesnt affiliate with mark ruffalo from the strokes
+get off the bandwagon put down the hand book
