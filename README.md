@@ -1,3 +1,3 @@
 🫒
 
-get off the bandwagon put down the handbook
+Get off the bandwagon put down the handbook
